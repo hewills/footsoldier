@@ -73,8 +73,6 @@ CONTACT
 Feel free to contact with questions/comments-
 
 Allegro member: hanaMephitis
-Email:          gryphon275@yahoo.com
-
 
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 LEGAL JUNK
